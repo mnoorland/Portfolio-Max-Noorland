@@ -25,12 +25,12 @@
 - Developed and maintained a database of prospective customers
 - Initiated contact with potential customers to explore business opportunities
 
-**Owner/director @ Delivery Diet – Rotterdam (_Aug 2020 - Jul 2021)**
+**Owner/director @ Delivery Diet – Rotterdam (_Aug 2020 - Jul 2021_)**
 - Managed website operations, including content updates and maintenance
 - Accomplished marketing strategies to promote products/services and enhance brand visibility
 - Handled financial administration tasks such as budgeting and financial reporting
 
-**Direct Sales Representatives @ Thuisgebracht Amersfoort – Amersfoort (_Apr 2019 - Mar 2020)**
+**Direct Sales Representatives @ Thuisgebracht Amersfoort – Amersfoort (_Apr 2019 - Mar 2020_)**
 - Executed door-to-door sales to drive revenue and expand customer base
 - Recruited and screened new colleagues to build a high-performing team
 - Facilitated onboarding process for new colleagues to ensure smooth integration and productivity
