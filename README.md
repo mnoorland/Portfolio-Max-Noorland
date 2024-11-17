@@ -3,7 +3,7 @@
 #### Technical Skills: Python, SQL, Microsoft Office, Power BI, Tableau, R, ML/AI, Canva, WordPress
 
 ## Education
-- M.S., Sport Technologies and Digital Transformation | Escuela Universitaria Real Madrid Universidad Europea (_Starting in October 2024_)
+- M.S., Sport Technologies and Digital Transformation | Escuela Universitaria Real Madrid Universidad Europea (_Diploma to be obtained in 2025_)
 
 - M.S., Business Analytics and Big Data | Politecnico di Milano (_2023 - 2024_)
 
